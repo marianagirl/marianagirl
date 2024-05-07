@@ -12,6 +12,7 @@ Sou vestibulanda e leitora 📖⚖️
  Tiktok: maarianas22
 
  ![](https://media.tenor.com/U2em0xUM7JUAAAAM/botdojk.gif)
+ ![](https://media.tenor.com/dVg5TlDeo8YAAAAM/andressa-urach-perseguida-e-injusti%C3%A7ada.gif)
 
 
  
