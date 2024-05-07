@@ -10,3 +10,5 @@ Sou vestibulanda e leitora 📖⚖️
  Instagram e vsco: maarianas2
  
  Tiktok: maarianas22
+
+ ![](https://tenor.com/pt-BR/view/andressa-urach-salientada-fotos-gif-9249533)
